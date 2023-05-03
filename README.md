@@ -1,1 +1,1 @@
-# Ako po si Edjin Jerney H. Payumo and inaantok po ako
+# I am Edjin Jerney H. Payumo :D
